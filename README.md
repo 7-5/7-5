@@ -1,5 +1,5 @@
 
-![[dsd]](https://tenor.com/view/club-penguin-ghosthy-hi-hello-wave-gif-10017453)
+![[dsd]](3.gif)
 
 
 he/him
