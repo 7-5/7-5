@@ -2,7 +2,7 @@
 # HOI!
 ### im a: 
 
-19yr old computer engineering and math major nerd.
+computer engineering and math major nerd.
 
 **he/him**
 
