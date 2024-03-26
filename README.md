@@ -2,7 +2,7 @@
 # HOI!
 ### im a: 
 
-computer engineering and math major nerd.
+computer engineering and math major nerd. mental training amateur.
 
 **he/him**
 
