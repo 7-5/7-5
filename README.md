@@ -2,13 +2,13 @@
 # HOI!
 ### im a: 
 
-computer engineering and math major nerd. mental training amateur.
+computer engineering and math major nerd. also a mental training amateur.
 
 **he/him**
 
 ![[dsd]](1.gif)
 
-- **How to reach me:** ... don't? im shy lol. if you so need to do reach me, my discord is ![[f]](dc1.png) `@7___5`
+- **How to reach me:** ... don't? im shy lol. if you so need to do reach me, my discord is ![[f]](dc1.png)`@7___5`
 
 ![[dsd]](2.gif)
 
