@@ -1,5 +1,5 @@
 ![[dsd]](4.gif)
-# Hiyaaaaaaaaaaaaaaaaa!
+# Hiyaaaaaaaaaaaaaaaaa! (gotta change this i added linkedin. going thru midterms rn. for the lurkers: you neednt read but theres repositories of lil projects and scripts from random times, i gotta get them organized sometime)
 ### im a: 
 
 computer engineering and math major nerd. also a mental training amateur.
