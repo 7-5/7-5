@@ -8,7 +8,7 @@ computer engineering and a math doublemajor. a massive nerd. projects are in rep
 
 ![[dsd]](1.gif)
 
-- **How to reach me:** ... don't? im shy lol. if you so need to do reach me, my discord is ![[f]](dc1.png)`@75git`
+- **How to reach me:** ... don't? im shy lol. if you so need to do reach me, my discord is ![[f]](dc1.png)`@clickpath`
 
 ![[dsd]](2.gif)
 
