@@ -2,7 +2,7 @@
 # hi there
 ### im a: 
 
-computer engineering student from a country where we meow at eggs. not all my projects are in repositories. its messy, the light switch doesn't work, there are cobwebs, dont go there.
+computer engineering student. not all my projects are repositoried. its messy and dark, the light switch doesn't work, there are cobwebs, dont go there unless you are looking for hires or something.
 
 **he/him** 
 
@@ -12,6 +12,6 @@ computer engineering student from a country where we meow at eggs. not all my pr
 
 ![[dsd]](2.gif)
 
-- **Fun fact:** air your room and go drink water.
+- **Fun fact:** air your room and drink water.
 
 ![[dsd]](3.gif)
