@@ -4,9 +4,9 @@
 
 computer engineering student. not all my projects are repositoried. its messy and dark, the light switch doesn't work, there are cobwebs, dont go there unless you are looking for hires or something.
 
-**he/him** 
+tree shaker | brainsuckler | shoebox squatter | brick muncher | metal poser | mental sports noob | pyromaniac | hollow knight fanboy | hammerhead shark zodiac | brainmelting wave emitting arcane object | genious-doofus superposition | low reaction time gamer | neurofry | not even a skid | pillbug adorer | moth observer
 
-![[dsd]](1.gif)
+![[ dsd]](1.gif)
 
 - **How to reach me:** not so into being reached. if you REALLY need to reach me, my discord is ![[f]](dc1.png)`@clickpath`
 
