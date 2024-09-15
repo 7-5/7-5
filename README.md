@@ -2,7 +2,7 @@
 # hi there
 ### im a: 
 
-computer engineering student. not all my projects are repositoried. its messy and dark, the light switch doesn't work, there are cobwebs, dont go there unless you are looking for hires or something.
+computer engineering student. not all my projects are repositoried. its messy and dark, the light switch doesn't work, there are cobwebs, dont go there unless you are looking for mean spiders.
 
 
 ![[ dsd]](1.gif)
